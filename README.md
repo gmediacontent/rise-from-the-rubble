@@ -1,1 +1,2 @@
-# rise-from-the-rubble
+# Rise From the Rubble
+10 ans après la nuit de Starfall, la ville S a été détruite par la plus grande épidémie de monstres enregistrée dans l’histoire. Zuo Fan, qui portait le nom de [Fils d’un traître], et qui était le plus inutile des guerriers de réserve de la Starfall qui s’était enfui, a éveillé le Super Warrior System au cours d’un piège déguisé en raid. Depuis, il s’est engagé sur la route du succès, s’élevant comme un météore. Tout en cherchant la vérité sur la trahison de son père au milieu d’une forte opposition, et en s’engageant progressivement sur la route épineuse du sauvetage du monde. Ainsi il devient un des meilleurs rankers de son monde.
